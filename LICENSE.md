@@ -1,4 +1,4 @@
-
+Experience anime card clash like never before with top anime card clash Script, the #1 Script. Includes instant win and speed for unbeatable
 
 
 
